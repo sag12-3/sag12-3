@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sagar Maharana
 - 👀 I’m interested in learning related to  technology....
-- 🌱 I’m currently continuing my master's degree at VSSUT, Burla
+- 🌱 I’m currently continuing my master's degree in MCA at VSSUT, Burla
 - 📫 My G-mail:sagarmaharana990@gamil.com
 - 😄 Pronouns: Venkat
 - ⚡ Hobbies: sing-song, riding, coding, and trying to learn always.
